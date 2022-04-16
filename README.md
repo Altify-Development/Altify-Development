@@ -9,3 +9,7 @@ funnies:
 
 ![funny-1](https://github.com/Altify-Development/Altify-Development/raw/main/funny-1.png)
 ![funny-2](https://github.com/Altify-Development/Altify-Development/raw/main/funny-2.png)
+
+i got 2,000,000 clones!
+
+![funny-3](https://github.com/Altify-Development/Altify-Development/raw/main/funny-3.png)
