@@ -3,9 +3,9 @@ This is me bruh -
 
 my main project: [Main](https://github.com/Altify-Developing/Altify-Developing-Main)
 
-Sorry for gmailnator being down, the domain was banned and the new one is here: [Click me](https://www.smartnator.com/)
+Sorry for gmailnator being down, the domain was banned and the new one is here: [Click me](https://www.emailnator.com/)
 
-btw, its now called smartnator
+btw, its now called emailnator
 
 ![Altify's github stats](https://github-readme-stats.vercel.app/api?username=altify-development&count_private=true&show_icons=true&include_all_commits&custom_title=Altify%27s%20Statistics)
 ![Altify's Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=altify-development&langs_count=3)
