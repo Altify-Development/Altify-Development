@@ -1,6 +1,8 @@
 This is me bruh - 
 [Altify](https://github.com/Altify-Development)
 
+## Nearly 11,000 Contributions Just Last Year!
+
 my main project: [Main](https://github.com/Altify-Developing/Altify-Developing-Main)
 
 Sorry for gmailnator being down, the domain was banned and the new one is here: [Click me](https://www.emailnator.com/)
