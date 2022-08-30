@@ -1,7 +1,7 @@
 This is me bruh - 
 [Altify](https://github.com/Altify-Development)
 
-## Nearly 11,000 Contributions Just Last Year!
+## 11,000+ CONTIBUTIONS LAST YEAR!!
 
 my main project: [Main](https://github.com/Altify-Developing/Altify-Developing-Main)
 
