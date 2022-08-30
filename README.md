@@ -1,7 +1,7 @@
 This is me bruh - 
 [Altify](https://github.com/Altify-Development)
 
-[Join Discord](https://joindiscord.netlify.app/)
+## [Join Discord](https://joindiscord.netlify.app/)
 
 ## 11,000+ CONTIBUTIONS LAST YEAR!!
 
