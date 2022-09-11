@@ -5,6 +5,8 @@ This is me bruh -
 
 ## 11,000+ CONTIBUTIONS LAST YEAR!!
 
+proton is a loser
+
 my main project: [Main](https://github.com/Altify-Developing/Altify-Developing-Main)
 
 Sorry for gmailnator being down, the domain was banned and the new one is here: [Click me](https://www.emailnator.com/)
