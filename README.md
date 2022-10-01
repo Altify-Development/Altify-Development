@@ -1,6 +1,6 @@
 This is me bruh - 
 [Altify](https://github.com/Altify-Development)
-
+# ACCOUNT WAS TERMINATED JOIN NEW DISCORD SERVER!!!
 ## [Join Discord](https://joindiscord.netlify.app/)
 
 ## 11,000+ CONTIBUTIONS LAST YEAR!!
