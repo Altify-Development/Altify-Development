@@ -1,9 +1,9 @@
 This is me bruh - 
 [Altify](https://github.com/Altify-Development)
 # ACCOUNT WAS TERMINATED JOIN NEW DISCORD SERVER!!!
-## [Join Discord](https://joindiscord.netlify.app/)
+## [Join Discord](https://discord.altifydeveloping.com)
 
-## 11,000+ CONTIBUTIONS LAST YEAR!!
+## 11,200+ CONTIBUTIONS LAST YEAR!!
 
 proton is a loser
 
