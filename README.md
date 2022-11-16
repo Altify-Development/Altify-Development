@@ -3,7 +3,7 @@ This is me bruh -
 # ACCOUNT WAS TERMINATED JOIN NEW DISCORD SERVER!!!
 ## [Join Discord](https://discord.altifydeveloping.com)
 
-## 11,200+ CONTIBUTIONS LAST YEAR!!
+## 11,300+ CONTIBUTIONS LAST YEAR!!
 
 proton is a loser
 
